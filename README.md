@@ -1,1 +1,0 @@
-# School-Club-K-pop
